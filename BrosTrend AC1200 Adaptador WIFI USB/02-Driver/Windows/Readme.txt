@@ -1,0 +1,1 @@
+Latest Driver for Windows is Available on https://brostrend.me/driver
